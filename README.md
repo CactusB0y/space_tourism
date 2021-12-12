@@ -1,1 +1,1 @@
-wlh juste de la pratiaue ou salam
+wlh juste de la pratique ou salam
